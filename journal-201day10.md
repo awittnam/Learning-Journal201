@@ -1,0 +1,3 @@
+## Learning Journal Day 10
+
+Today's Chocolate Pizza was a great day!  I was late to class due to a doctor's appointment that couldn't be rescheduled so I was starting the day with stress from that situation and knowing what Chocolate Pizza entailed.  But when I was told it was a pair assignment that made it much more managable (mentally).  The biggest take away is that we finished so much faster than I thought would be possible and it wasn't because one person was better than another, but because you had different perspectives to draw from.  It amazes me how a differing perspective can totally shift how you approach and then solve a problem.
